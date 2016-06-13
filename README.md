@@ -1,0 +1,2 @@
+# eksamensdiagram
+Hejhej
